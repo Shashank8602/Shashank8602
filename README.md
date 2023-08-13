@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Shashank S [@Shashank8602]
+- 👀 I’m interested in Gaming , Art and Sketches , Listening to music
+- 🌱 I’m currently learning Computer Science and Engineering
+- 📫 Reach me at shashu.s08@gmail.com
